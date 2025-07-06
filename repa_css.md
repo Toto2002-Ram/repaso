@@ -1,1 +1,1 @@
-Repaso con estos idolos
+Repaso con estos idolos. 
